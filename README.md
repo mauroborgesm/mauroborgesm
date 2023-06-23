@@ -7,4 +7,7 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love dogs and I'm a movie buff! 
 
+<a href="https://www.linkedin.com/in/mauroborgesmora/">My Linkedin</a>
+
+
   
