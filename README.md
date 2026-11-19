@@ -3,8 +3,6 @@
 
 - 💬 Ask me about **HTML, CSS, Boostrap, React, Javascript or Python**
 
-- 📫 How to reach me **mauroborgesm@gmail.com**
-
 - ⚡ Fun fact **I love dogs and I'm a movie buff!**
 
 <h3 align="left">Connect with me:</h3>
